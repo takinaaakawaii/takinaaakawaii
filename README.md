@@ -1,1 +1,1 @@
-### sooo my discord lewi#7225
+### sooo my discord https://discordapp.com/users/694482659702734909
